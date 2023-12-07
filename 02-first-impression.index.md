@@ -16,4 +16,5 @@ Good night. It's a short animated fairy tale that doesn't even last three minute
 The fairy tale explores the themes of fear, nightmares, and suppressed traumas.
 ![image](https://github.com/Iris711/AJ/assets/149763594/31ffb6d4-c413-4bba-9512-6e51198821e0)
 ![image](https://github.com/Iris711/AJ/assets/149763594/a57de099-753a-4ed6-9ea7-8d2c7e303d2d)
+![image](https://github.com/Iris711/AJ/assets/149763594/67ff7ba1-82a9-48ab-8003-ef08618901e3)
 
