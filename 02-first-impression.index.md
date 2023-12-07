@@ -5,6 +5,8 @@ RECENT WORKS
 
 „Reguiem pro Prahu“
 "Requiem for Prague" is a visual novel currently being developed by the Edit team, set to be released in September next year. I had the opportunity to create the entire graphics and character design for this game. Given that I've been in the field for only three years and spent two years learning how to work with graphic software, this was my first significant commission.
+![image](https://github.com/Iris711/AJ/assets/149763594/e6d11802-e75d-4d7b-b4db-3d4411165294)
+
 
 FOD Klokánek
 The Children in Need Foundation "Klokánek" This year, along with my classmates, I worked on designing posters for the non-profit organization Klokánek. I collaborated with two more experienced graphic designers to put together the final design proposal because I'm not a graphic designer myself and don't have a deep understanding of graphics.
