@@ -15,4 +15,5 @@ Good night. It's a short animated fairy tale that doesn't even last three minute
 "Imagine being four years old, completely alone in the dark, with your parents far away."
 The fairy tale explores the themes of fear, nightmares, and suppressed traumas.
 ![image](https://github.com/Iris711/AJ/assets/149763594/31ffb6d4-c413-4bba-9512-6e51198821e0)
+![image](https://github.com/Iris711/AJ/assets/149763594/a57de099-753a-4ed6-9ea7-8d2c7e303d2d)
 
