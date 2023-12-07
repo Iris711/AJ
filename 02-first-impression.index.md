@@ -1,9 +1,9 @@
+# First Impression
 Hello, I'm Daniela, a third-year university student. My main focus is on 2D animation, and my dream is to create content for children in the future, such as fairy tales or bedtime stories. However, I'm unsure if it's possible because, in reality, I'm a very dark-minded person, and that usually reflects in my work. Once, a long time ago, when I told fairy tales to my little cousin, she had nightmares, and her mum eventually banned me from doing so.
 Maybe I should consider making horror stories instead. Nobody wants a generation of traumatised children growing up, right?
 
-# First Impression
 
-RECENT WORKS
+# RECENT WORKS
 
 „Reguiem pro Prahu“
 
