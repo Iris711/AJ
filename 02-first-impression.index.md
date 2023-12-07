@@ -9,6 +9,8 @@ RECENT WORKS
 FOD Klokánek
 The Children in Need Foundation "Klokánek" This year, along with my classmates, I worked on designing posters for the non-profit organization Klokánek. I collaborated with two more experienced graphic designers to put together the final design proposal because I'm not a graphic designer myself and don't have a deep understanding of graphics.
 The posters were displayed in the Prague metro for several months.
+![image](https://github.com/Iris711/AJ/assets/149763594/b227643b-0228-47b6-92ff-cac192e03c45)
+
 
 Good night
 Good night. It's a short animated fairy tale that doesn't even last three minutes. It deals with what happens after you tuck your child into bed for the night, turn off the lights, and close the door.
