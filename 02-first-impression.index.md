@@ -7,6 +7,7 @@ RECENT WORKS
 "Requiem for Prague" is a visual novel currently being developed by the Edit team, set to be released in September next year. I had the opportunity to create the entire graphics and character design for this game. Given that I've been in the field for only three years and spent two years learning how to work with graphic software, this was my first significant commission.
 ![image](https://github.com/Iris711/AJ/assets/149763594/e6d11802-e75d-4d7b-b4db-3d4411165294)
 ![image](https://github.com/Iris711/AJ/assets/149763594/c76dc276-9741-4e5a-a901-04860ec37cfe)
+![image](https://github.com/Iris711/AJ/assets/149763594/a72a766f-03db-4385-bf1f-b64e7439fe15)
 
 
 FOD Klokánek
