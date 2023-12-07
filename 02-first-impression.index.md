@@ -5,7 +5,7 @@ Maybe I should consider making horror stories instead. Nobody wants a generation
 
 # RECENT WORKS
 
-„Reguiem pro Prahu“
+## „Reguiem pro Prahu“
 
 "Requiem for Prague" is a visual novel currently being developed by the Edit team, set to be released in September next year. I had the opportunity to create the entire graphics and character design for this game. Given that I've been in the field for only three years and spent two years learning how to work with graphic software, this was my first significant commission.
 ![image](https://github.com/Iris711/AJ/assets/149763594/e6d11802-e75d-4d7b-b4db-3d4411165294)
@@ -13,14 +13,14 @@ Maybe I should consider making horror stories instead. Nobody wants a generation
 ![image](https://github.com/Iris711/AJ/assets/149763594/a72a766f-03db-4385-bf1f-b64e7439fe15)
 
 
-FOD Klokánek
+## FOD Klokánek
 
 The Children in Need Foundation "Klokánek" This year, along with my classmates, I worked on designing posters for the non-profit organization Klokánek. I collaborated with two more experienced graphic designers to put together the final design proposal because I'm not a graphic designer myself and don't have a deep understanding of graphics.
 The posters were displayed in the Prague metro for several months.
 ![image](https://github.com/Iris711/AJ/assets/149763594/0d087532-5a6d-4a9c-bffc-26677526d9d9)
 
 
-Dobrou noc
+## Dobrou noc
 
 Good night. It's a short animated fairy tale that doesn't even last three minutes. It deals with what happens after you tuck your child into bed for the night, turn off the lights, and close the door.
 "Imagine being four years old, completely alone in the dark, with your parents far away."
