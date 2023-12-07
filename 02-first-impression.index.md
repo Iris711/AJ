@@ -10,6 +10,7 @@ FOD Klokánek
 The Children in Need Foundation "Klokánek" This year, along with my classmates, I worked on designing posters for the non-profit organization Klokánek. I collaborated with two more experienced graphic designers to put together the final design proposal because I'm not a graphic designer myself and don't have a deep understanding of graphics.
 The posters were displayed in the Prague metro for several months.
 ![image](https://github.com/Iris711/AJ/assets/149763594/b227643b-0228-47b6-92ff-cac192e03c45)
+![image](https://github.com/Iris711/AJ/assets/149763594/0cb167d8-d0ad-4277-a374-5a1e52bfddae)
 
 
 Good night
