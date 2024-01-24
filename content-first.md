@@ -3,6 +3,7 @@ It is said that only God, necromancers, and Master Kelly can breathe life into s
 # About me
 My name is Daniela, and I have a peculiar hobby that also serves as my life's calling. I am an animator, compelling inert things to no longer be inert.I instruct the animated characters on what to do. If I want them to sit, lie down, or start running, they will do it. I can even give them wings if that's what you desire.
 
+![Uploading image.png…]()
 
 
 # About my work
@@ -11,7 +12,7 @@ I primarily focus on 2D animation, although I have some experience with 3D. In m
 I enjoy working with heavy themes and negative emotions, as I believe I can portray them in a way that is acceptable for the viewer without being traumatizing. 
 
  [Presentation](https://drive.google.com/file/d/1itV0QAvNS6SqubPOmw-Hnu9Ed4RNZvnY/view?usp=drive_link)
- [Instagram]([https://drive.google.com/file/d/1itV0QAvNS6SqubPOmw-Hnu9Ed4RNZvnY/view?usp=drive_link]
+ [Instagram](https://drive.google.com/file/d/1itV0QAvNS6SqubPOmw-Hnu9Ed4RNZvnY/view?usp=drive_link)
 
 
 # About my projects
