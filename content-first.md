@@ -6,11 +6,6 @@ My name is Daniela, and I have a peculiar hobby that also serves as my life's ca
  
 ![image](https://github.com/Iris711/AJ/assets/149763594/13ee2cc0-413e-4181-be02-e80439222248)
 
-<p align="center">
-  <img width="460" height="300" ![image] src="[https://picsum.photos/460/300](https://github.com/Iris711/AJ/assets/149763594/13ee2cc0-413e-4181-be02-e80439222248)">
-</p>
-
-
 
 # About my work
 I primarily focus on 2D animation, although I have some experience with 3D. In my projects, I typically combine various techniques, such as flat and hand-drawn animation. I favour a cute, slightly fairytale style, but I often blend it with a darker, horror atmosphere or a heavier theme.
