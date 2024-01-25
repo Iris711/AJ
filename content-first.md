@@ -1,4 +1,4 @@
-###*It is said that only God, necromancers, and Master Kelly can breathe life into something lifeless. That's not true; I can do it too. I am an animator.*
+### *It is said that only God, necromancers, and Master Kelly can breathe life into something lifeless. That's not true; I can do it too. I am an animator.*
 
 # About me
 My name is Daniela, and I have a peculiar hobby that also serves as my life's calling. I am an animator, compelling inert things to no longer be inert.I instruct the animated characters on what to do. If I want them to sit, lie down, or start running, they will do it. I can even give them wings if that's what you desire.
