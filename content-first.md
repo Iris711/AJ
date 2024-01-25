@@ -1,5 +1,5 @@
 <p align="center">
- ### *It is said that only God, necromancers, and Master Kelly can breathe life into something lifeless. That's not true; I can do it too. I am an animator.*
+ *It is said that only God, necromancers, and Master Kelly can breathe life into something lifeless. That's not true; I can do it too. I am an animator.*
  </p>
 
 # About me
