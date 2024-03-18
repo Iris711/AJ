@@ -3,11 +3,11 @@ Hello, my name is Daniela, and I'm not very good at talking to other people. Som
 
 It's okay. It's a normal thing that happens to introverts. We prefer writing to people rather than talking to them. Often, we can't sort out our thoughts and speak confusedly. Even though I'm not good at talking to other people, I think I'm pretty good at listening to them. And that's important too.
 
-#VOICE
+## VOICE
 My voice is soft and unassuming. It's somewhat monotonous, yet it's not usually disagreeable to others. My voice reflects my emotions. When I'm sad, it quivers and falters. When I'm joyful, it becomes more lively.
 The most off-putting and unpleasant aspect of my voice is when I try to sing. At that moment, my voice can be disagreeable even to me. Nevertheless, I still enjoy singing, especially in the shower where I can't hear myself.
 
-#TONE
+## TONE
 "Listening tone" 
 It often happens to me (and I don't know why) that other people come to me and want to talk about their problems and troubles. I've never figured out why, but it has always happened to me, since I remember. Many times it involved complete strangers whom I didn't even know. Nevertheless, they tended to confide in me with their problems.
 In such situations, I try to talk with calm, reassuring, and gentle tone. I don't speak much, but when I do, I want my tone to convey interest and support. Sometimes the least we can do for others is to listen to them.
