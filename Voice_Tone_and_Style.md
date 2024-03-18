@@ -21,4 +21,5 @@ When I speak with people whom I don't know well and who aren't part of my close 
 "Friendly tone" - 
 When I'm among friends and close people, my tone is relaxed. It reflects more emotions and sounds lively and cheerful.
 
-
+## STYLE
+In everything I do, there's a touch of irony and a hint of sarcasm. I like to do things my way. Sometimes I use emoticons like a child. Maybe three in one sentence. Sometimes, I write tersely and abruptly. My handwriting has poor slant. To other side. I'm one of those dreadful people who use CAPS LOCK for headlines. I jump from thought to thought and automatically assume others are clairvoyant and understand it. I make fun of serious matters; it's my way of dealing with them. It's hard for me to pretend to be someone else. It is difficult for me to adapt. Most people can immediately recognize my texts.
