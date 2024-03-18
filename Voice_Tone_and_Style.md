@@ -8,17 +8,17 @@ My voice is soft and unassuming. It's somewhat monotonous, yet it's not usually 
 The most off-putting and unpleasant aspect of my voice is when I try to sing. At that moment, my voice can be disagreeable even to me. Nevertheless, I still enjoy singing, especially in the shower where I can't hear myself.
 
 ## TONE
-"Listening tone" 
+"Listening tone" - 
 It often happens to me (and I don't know why) that other people come to me and want to talk about their problems and troubles. I've never figured out why, but it has always happened to me, since I remember. Many times it involved complete strangers whom I didn't even know. Nevertheless, they tended to confide in me with their problems.
 In such situations, I try to talk with calm, reassuring, and gentle tone. I don't speak much, but when I do, I want my tone to convey interest and support. Sometimes the least we can do for others is to listen to them.
 
-"Authoritative tone"
+"Authoritative tone" - 
 Sometimes there are situations when I am convinced that I am right about something. Others say that at that moment I speak very authoritatively, and my tone doesn't allow for any objections. I don't know if that's true. I'm just trying to explain clearly and logically why I think the truth is on my side.
 
-"Neutral tone"
+"Neutral tone" - 
 When I speak with people whom I don't know well and who aren't part of my close circle, I somewhat switch to voice autopilot. My voice takes on an operational tone. It doesn't contain too many emotions and doesn't fluctuate up or down. Its intonation remains constant.
 
-"Friendly tone"
+"Friendly tone" - 
 When I'm among friends and close people, my tone is relaxed. It reflects more emotions and sounds lively and cheerful.
 
 
