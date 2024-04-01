@@ -26,8 +26,11 @@ And... so I began to think about this idea. Over the past month, I've been inten
 I must admit, I'm completely depressed from this topic. It never occurred to me that being an animator could be so sad, stressful, and depressing.
 
 Maybe someday in the future, you might find yourself having to deal with a topic that you struggle to cope with, and perhaps my experience might help someone. What surprised me the most about it all, is how incredibly common this problem is. According to available studies, one from five girls and one from ten boys encounter some form of sexual abuse. That's terribly high. We can be certain that someone among our close friends, someone from our family or colleagues, someone we know, has a similar experience.
+
 People generally think that children are most in danger from complete strangers. That a child will encounter some evil pervert out there. That harm will come to them outside. We tell children not to talk to strangers, but the most terrifying thing is, that most of this happens at home. The most common offender of such things is someone who, the child knows. It could be a parent, step-parent, sibling, relative, neighbor, teacher, or club leader... The statistics I've come across indicate that this accounts for 80% of cases.
+
 Another sad fact that surprised me is that about 69% of men and 79% of women never confide in anyone about it. And the reasons are various. Shame, fear of the aggressor, fear that no one will believe them, trying not to hurt the family, threats...etc.
+
 When I started talking about my current projects with my family and friends, suddenly a few people, whom I've known for a long time and whom I would never have guessed, confided in me that they had gone through something similar themselves. Yet I would have never known. It would have never even crossed my mind.
 And the more I know about this topic, the more depressed I become. It upsets me, makes me sad, and I'm sorry about it. 
 
