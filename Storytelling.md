@@ -54,3 +54,6 @@ When you're dealing with a challenging topic, it's good to talk about it with ot
 
 ## 5.) Positive incentive are important
 If you consume a large amount of negative content and do it all day for a long time, it will inevitably have a negative impact on your mood. In this case, it's more important than ever to monitor the content you consume. It's useful to say to yourself, for example, "Right now, I need to consume some positive content," and even if you're not in the mood for it, watch a cheerful series or a fairy tale. For some people might be therapeutic see videos of animals or comedy movies. However, negative things should never be the only thing you see all day, as it will affect you.
+
+![image](https://github.com/Iris711/AJ/assets/149763594/fa54dd09-0628-43b0-bd4b-1540f420ba25)
+
