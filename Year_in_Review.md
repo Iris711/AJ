@@ -2,6 +2,7 @@
 
 ## What I learned at school
 • Dealing with stress
+
 • Time management
 • Improving English
 
