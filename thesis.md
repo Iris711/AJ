@@ -19,6 +19,11 @@ I write about various animation techniques and styles. I look at technological p
 
 The Czech Republic has a great tradition in animation. Many Czech works are highly appreciated abroad, and Czech animation is a heritage, we can be proud of. Through my work, I would like to honour all Czech animators, and at the same time, this topic is a way for me to learn even more about our history.
 
+### Information sources
+About Czech animation was written a lot of books and they become my main source of information. Besides books, many programs and independent creators discuss the history of Czech animation. Some information can be found, for example, on YouTube. Czech Television also does great work in this regard, with its own program about Czech animators.
+
+
+
 ## Thesis - Practical part
 
 ### Visual style
