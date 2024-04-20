@@ -12,6 +12,8 @@ So, what have I learned in the past 12 months?
 
 • Improving English
 
+• Verifying information
+
 ## What I learned at work
 
 • Basics of working with Unity software
