@@ -1,7 +1,10 @@
 # Year in Review
 
 The year 2023 I would definitely the most unpleasant I've ever experienced for a long time. It wasn't the worst, but I was glad when the year ended. In 2023, I had to deal with health problems, surgery, stress, and a family death. Even though it was a bad year, people should always try to find positives in their lives. This year also give me something good: experience.
-On the other hand, 2024 is going well so far. I have a new job, great boyfriend and amazing family. I'm still stressed, but since I'm in my final year of university, it was expected. Considering the circumstances, it can be said that everything is going well.
+
+On the other hand, 2024 is going well so far. I have a new job, great boyfriend and amazing family. I'm still stressed, but since I'm in my final year of university, it was expected. 
+
+Considering the circumstances, it can be said that everything is going well.
 So, what have I learned in the past 12 months?
 
 
