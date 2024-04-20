@@ -1,5 +1,7 @@
 # Dealing with difficult topics
 
+https://github.com/Iris711/AJ/blob/main/storytelling-daniela-skrivankova.mp4
+
 Hello, my name is Daniela, and like all of you, I study at the College of Creative Communication. I'm studying animation, and just like all of you, I also have to complete mandatory practical experience. It was something I was afraid of from the first year because, before I started at this school, I had never focused on graphics and animation. So I've only been doing animation for a while, and I couldn't imagine being hired for any job or someone be willing to actually pay me for the things I draw.
 
 I felt like I didn't know anything, that the competition was too high, and that it would surely  the reason why I wouldn't graduate on this school.
