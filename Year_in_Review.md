@@ -57,8 +57,10 @@ So, what have I learned in the past 12 months?
 
 • My life depends on how I act when I don't feel like doing something
 
+# Summary
+Last year brought me many challenges that I had to cross over and a lot of experiences that I'll be able to use in the future. If I were to look back to this year and take some lessons from it, it would probably be this:
 
-
+People shouldn't stress with little things unnecessarily. Things always work out somehow. If person is stresses over things ,they can't change anyway, they won't have the strength for the truly important situation. 
 
 
 
