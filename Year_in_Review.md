@@ -42,3 +42,14 @@
 • I need a solid routine to be effective
 
 • Give prioritise to important tasks
+
+• My life = my responsibility.
+
+• My life depends on how I act when I don't feel like doing something
+
+
+
+
+
+
+
