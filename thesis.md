@@ -10,6 +10,7 @@ In the practical part of my bachelor's thesis, I'm making an animated film. The 
 Movie is about war and the story is from accient Japan. 
 
 ## Thesis - Theoretical part
+History and development of Czech animation
 
 ### Theme
 I write about various animation techniques and styles. I look at technological progress and new tools for animation creation. One chapter is dedicated to how communism and censorship influenced Czech animation. I explore Czech animation abroad. Finally, I analyze key works of Czech animation in detail.
