@@ -12,8 +12,12 @@ Movie is about war and the story is from accient Japan.
 ## Thesis - Theoretical part
 History and development of Czech animation
 
-### Theme
+### Topic
 I write about various animation techniques and styles. I look at technological progress and new tools for animation creation. One chapter is dedicated to how communism and censorship influenced Czech animation. I explore Czech animation abroad. Finally, I analyze key works of Czech animation in detail.
+
+### Why I choose this topic
+
+The Czech Republic has a great tradition in animation. Many Czech works are highly appreciated abroad, and Czech animation is a heritage, we can be proud of. Through my work, I would like to honour all Czech animators, and at the same time, this topic is a way for me to learn even more about our history.
 
 ## Thesis - Practical part
 
