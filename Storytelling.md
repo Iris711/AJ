@@ -41,7 +41,7 @@ And the more I know about this topic, the more depressed I become. It upsets me,
 
 # How to deal with it, when you have to work on a similar topic?
 
-## 1.) First, realize that you don't have to. 
+## 1.) First, realize that you don't have to
 It's entirely your decision, and no one could blame you for saying you don't want to do it. Try to identify why you got into it and why you started. For me, the reason was simple. I think this topic is incredibly important. And it's important to talk about it and try to communicate it. And since I believe this project could help someone if done well and in cooperation with experts. That's what keeps me going. That's why I'm doing it.
 
 ## 2.) Accept things as they are 
@@ -55,7 +55,7 @@ It's important to realize that even if you're currently addressing a serious iss
 When you're dealing with a challenging topic, it's good to talk about it with other people so you're not alone. Speaking with others can help you organize your thoughts and alleviate the burden you feel.
 
 ## 5.) Positive incentives are important
-If you consume a large amount of negative content and do it all day for a long time, it will inevitably have a negative impact on your mood. In this case, it's more important than ever to monitor the content you consume. It's useful to say to yourself, for example, "Right now, I need to consume some positive content," and even if you're not in the mood for it, watch a cheerful series or a fairy tale. For some people might be therapeutic to see videos of animals or comedy movies. However, negative things should never be the only thing you see all day, as it will affect you.
+If you consume a large amount of negative content and do it all day for a long time, it will inevitably have a negative impact on your mood. In this case, it's more important than ever to monitor the content you consume. It's useful to say to yourself, for example, "Right now, I need to consume some positive content," and even if you're not in the mood for it, watch a cheerful series or a fairy tale. For some people, it might be therapeutic to see videos of animals or comedy movies. However, negative things should never be the only thing you see all day, as it will affect you.
 
 ![image](https://github.com/Iris711/AJ/assets/149763594/fa54dd09-0628-43b0-bd4b-1540f420ba25)
 
