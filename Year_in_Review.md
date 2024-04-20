@@ -7,7 +7,8 @@
 
 • Improving English
 
-## Carieer
+## What I learned at work
+
 • Basics of working with Unity software
 
 • Basic of working with Figma 
@@ -19,7 +20,7 @@
 • I don't have to be online 24/7
 
 
-## Self-Study
+## What I learned at Self-Study
 • Basics of working with Blender
 
 • Improving my Adobe Photoshop, Adobe Animate and Adobe After effects skills
@@ -30,7 +31,8 @@
 • Don't start stopping, don't stop starting
 
 
-## Other
+## What I learned in my life
+
 • Expanding my graphic portfolio
 
 • Skills are assets that nobody can take away from me
