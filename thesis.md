@@ -3,9 +3,10 @@ Hello,
  
  my name is Daniela and I study animation and visual effects at the University od Creative comunication. Since I'm in my third year, this is the year when I have to create my bachelor's thesis.
 My bachelor's thesis has two parts. A theoretical part and a practical part.
-In the theoretical part, I analyze the history and development of Czech animation from its beginnings to the present. In the practical part of my bachelor's thesis, I'm making an animated film. The film should be at least three minutes long, but I'm sure mine will be longer. 
-Movie is about war and the story is from accient Japan. 
+In the theoretical part, I analyze the history and development of Czech animation from its beginnings to the present and I´m closely analyzing the key works of the most important Czech animators. 
 
+In the practical part of my bachelor's thesis, I'm making a short animated film. The film should be at least three minutes long, but I'm sure it will be a little longer. 
+The film is about war, the senselessness of violence, the insignificance of life, and the endless cycle of existence. The story is set in ancient Japan.
 ## Thesis - Theoretical part
 History and development of Czech animation
 
