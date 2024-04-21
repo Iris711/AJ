@@ -8,17 +8,21 @@ In the theoretical part, I analyze the history and development of Czech animatio
 In the practical part of my bachelor's thesis, I'm making a short animated film. The film should be at least three minutes long, but I'm sure it will be a little longer. 
 The film is about war, the senselessness of violence, the insignificance of life, and the endless cycle of existence. The story is set in ancient Japan.
 ## Thesis - Theoretical part
-History and development of Czech animation
+
+I've chosen a topic: History and development of Czech animation
 
 ### Topic
-I write about various animation techniques and styles. I look at technological progress and new tools for animation creation. One chapter is dedicated to how communism and censorship influenced Czech animation. I explore Czech animation abroad. Finally, I analyze key works of Czech animation in detail.
+I'm writing about different techniques and styles that exist in animation and that have been used in the past in the Czech Republic.
+I look at technological progress and new tools for animation creation, how they've influenced the development of Czech animation. One chapter is dedicated to how communism and censorship influenced Czech animation. Communism was in our country for a long time and had a significant influence on the production of films, series, and animation. Creators received funding for their works, but were subject to strict censorship. There was a lack of freedom of expression, and creative creativity was strongly limited. 
+
+At the End I explore Czech animation at abroad. Finally, I analyze key works of Czech animation in detail.
 
 ### Why I choose this topic
 
-The Czech Republic has a great tradition in animation. Many Czech works are highly appreciated abroad, and Czech animation is a heritage, we can be proud of. Through my work, I would like to honour all Czech animators, and at the same time, this topic is a way for me to learn even more about our history.
+The Czech Republic has a great tradition in animation. Many Czech works are highly appreciated at abroad, and Czech animation is a heritage, we can be proud of. Through my work, I would like to honour all Czech animators, and at the same time, this topic is a way for me to learn even more about our history. Animation is my job and also my hobby. So, choosing the topic was clear to me from the very beginning.
 
 ### Information sources
-About Czech animation was written a lot of books and they become my main source of information. Besides books, many programs and independent creators discuss the history of Czech animation. Some information can be found, for example, on YouTube. Czech Television also does great work in this regard, with its own program about Czech animators.
+About Czech animation was written a lot of books and they become my main source of information. Besides books, many programs and independent creators discuss the history of Czech animation. Some information can be found, for example, on YouTube. Czech Television also does great work in this regard, with its own program about Czech animators. As Czech Republic has a great tradition in puppet animation, most study materials can be found for that. However, it's not difficult to find information about other types of animation either.
 
 
 
