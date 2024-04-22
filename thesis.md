@@ -33,6 +33,10 @@ The story is placed in ancient Japan during the time of the samurais. Because of
 Since I use the Sumi-e style, I decided to make the film in a flat animation style, which most look like a  traditional Japanese shadow play. The film is characterized by lack of colour. The environment is done in shades of brown, and the characters are usually black and white. The only colourful element is the pink cherry blossom petals, which poetically symbolize blood in the story.
 
 The film is done in a 2D style, and I'm creating it using "Adobe Animate, Adobe After Effects, Adobe Photoshop, and DaVinci Resolve". 
+
+![image](https://github.com/Iris711/AJ/assets/149763594/3b82bfe5-5e71-4012-8ff5-9be95ce97ed1)
+
+
 ### Story
 The story is about war. We follow two groups of samurais who meet in a desolate, lifeless landscape and start fighting to each other. Every time when someone is injured, instead of blood, pink sakura leafs burst out of the wound. These vivid pink leafs are the only colourful element in the movie. When these leafs fall to the ground, the barren and dead land starts turning green. When more samurais lie on the ground and bleed (more sakura petals are in the air), then more the land comes to life. At the end of the movie, when all participants are dead, we can see a lush landscape full of life. The dead bodies become part of the landscape and decompose. No one will ever know that a war took place there in the past. The story highlights the senselessness of war.
 
