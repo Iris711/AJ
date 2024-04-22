@@ -1,4 +1,4 @@
-# Hello,
+# Hello
  
  my name is Daniela and I study animation and visual effects at the University od Creative comunication. Since I'm in my third year, this is the year when I have to create my bachelor's thesis.
 My bachelor's thesis has two parts. A theoretical part and a practical part.
