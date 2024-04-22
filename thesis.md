@@ -38,4 +38,4 @@ The story is about war. We follow two groups of samurais who meet in a desolate,
 
 Any war, no matter how big, will be forgotten over time.
 
- [ Link ](https://drive.google.com/file/d/1IFSxzcT0NTMB1O8hrPOAm8HDReIUxjfM/view?usp=drive_link)
+### [ See opening scene  ](https://drive.google.com/file/d/1IFSxzcT0NTMB1O8hrPOAm8HDReIUxjfM/view?usp=drive_link)
