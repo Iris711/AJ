@@ -37,3 +37,5 @@ The film is done in a 2D style, and I'm creating it using "Adobe Animate, Adobe 
 The story is about war. We follow two groups of samurais who meet in a desolate, lifeless landscape and start fighting to each other. Every time when someone is injured, instead of blood, pink sakura leafs burst out of the wound. These vivid pink leafs are the only colourful element in the movie. When these leafs fall to the ground, the barren and dead land starts turning green. When more samurais lie on the ground and bleed (more sakura petals are in the air), then more the land comes to life. At the end of the movie, when all participants are dead, we can see a lush landscape full of life. The dead bodies become part of the landscape and decompose. No one will ever know that a war took place there in the past. The story highlights the senselessness of war.
 
 Any war, no matter how big, will be forgotten over time.
+
+https://drive.google.com/file/d/1IFSxzcT0NTMB1O8hrPOAm8HDReIUxjfM/view?usp=drive_link
