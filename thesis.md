@@ -7,7 +7,7 @@ In the theoretical part, I analyze the history and development of Czech animatio
 In the practical part of my bachelor's thesis, I'm making a short animated film. The film should be at least three minutes long, but I'm sure it will be a little longer. 
 The film is about war, the senselessness of violence, the insignificance of life, and the endless cycle of existence. The story is set in ancient Japan.
 
-### → [Listen my presentation]([https://drive.google.com/file/d/1IFSxzcT0NTMB1O8hrPOAm8HDReIUxjfM/view?usp=drive_link](https://drive.google.com/file/d/1tpo3-JszH0rGY_f4leWFN4Tcf9oJ7gEu/view?usp=drive_link) ←
+### → [Listen my presentation](https://drive.google.com/file/d/1tpo3-JszH0rGY_f4leWFN4Tcf9oJ7gEu/view?usp=drive_link) ←
 
 ## Thesis - Theoretical part
 
