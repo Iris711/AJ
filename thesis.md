@@ -1,6 +1,6 @@
 # Hello
  
- my name is Daniela and I study animation and visual effects at the University od Creative comunication. Since I'm in my third year, this is the year when I have to create my bachelor's thesis.
+My name is Daniela and I study animation and visual effects at the University od Creative comunication. Since I'm in my third year, this is the year when I have to create my bachelor's thesis.
 My bachelor's thesis has two parts. A theoretical part and a practical part.
 In the theoretical part, I analyze the history and development of Czech animation from its beginnings to the present and I´m closely analyzing the key works of the most important Czech animators. 
 
